@@ -17,6 +17,3 @@ For enquiries and personalized assistance, visit:
 https://propdial.in/contact
 
 Trust Propdial for efficient and professional real estate asset management in India.
-
----
-This content is for use in marketing, SEO, backlink creation, and informational materials related to Propdial’s services.
